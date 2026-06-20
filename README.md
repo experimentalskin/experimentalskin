@@ -2,7 +2,7 @@
 
 [rentry](https://rentry.co/taracarpenter)
 ㅤㅤ(⇀‸↼ ") ..
-ㅤㅤ[twitter](https://twitter.com/carpentertism)
+ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
 </div>
 
